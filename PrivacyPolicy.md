@@ -14,5 +14,6 @@ If you have any questions regarding our privacy policy, please contact us at the
 
 Last updated: 4/24/2024.
 
-Best regards,  
-INES KHOZAM
+---
+
+Baby Vision Team
