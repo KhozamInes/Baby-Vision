@@ -10,7 +10,7 @@ Baby Vision does not collect any user data. All user data is stored on the devic
 
 We reserve the right to modify this privacy policy at any time. All changes will be posted on this page.
 
-If you have any questions regarding our privacy policy, please contact us at the following address: test@gmail.com
+If you have any questions regarding our privacy policy, please contact us at the following address: ines.khozam@gmail.com
 
 Last updated: 4/24/2024.
 
